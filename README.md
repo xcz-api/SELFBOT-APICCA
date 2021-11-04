@@ -27,7 +27,7 @@
 
 ## ```HOW TO DEPLOY```
 
-[`Click Here For Tutorial`](https://youtu.be/5HgB__wARjM)<br>
+[`Click Here For Tutorial`](https://youtu.be/gsI4rv1duv4)<br>
 
 ----------
 
